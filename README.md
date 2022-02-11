@@ -1,2 +1,1 @@
-Duc M. Vu github site
-Contact: vmd0210@gmail.com
+Duc M. Vu Github site | Contact: vmd0210@gmail.com
